@@ -7,3 +7,4 @@ Halo kawan, anggota kelompoku terdiri dari:
 3. Aldino Shorabal Tasar
 4. Renjiro Hidayat
 5. Syahdan Martua Ibrahim Hasibuan (aku edit ya)awaw
+6. tambah satu lagi 
